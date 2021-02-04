@@ -18,6 +18,7 @@
 
 * Amazing teacher! [kathrin shechtman](https://www.youtube.com/channel/UCZ0xTJKh01_OwUJO_pJuH2A)
   * [Starting playlist](https://www.youtube.com/watch?v=rVmLItMkjt0&list=PLO4l-x0dJROw6mRM_wC9253hZgn0wmzQu&index=1)
+* [German is not boring](https://www.youtube.com/watch?v=5hTaFD0K7uw)
 * [Slow German - lerne Deutsch mit Annik!](https://www.youtube.com/channel/UCXntXBt2YKBO1xDni0EgjXA)
 * [Learn German with Anja](https://www.youtube.com/watch?v=ErkAEDXPdhw&list=PLYzp2xhTw9W1q9Z577ViHvWXiktfyUCQK)
 * [Peppa Pig Deutsch](https://www.youtube.com/channel/UCNclt7O1bO7hz8Mari68neg)
