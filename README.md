@@ -47,3 +47,4 @@
 ### Swedish
 
 * [Slow Swedish with Katrin Berndt](https://www.youtube.com/c/KatrinBerndtSWE/featured)
+* [Say it in Swedish](https://www.youtube.com/channel/UCaz5U4mtFnxoV4Pba3OLHow)
